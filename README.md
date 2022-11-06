@@ -11,6 +11,14 @@
 ![image](https://user-images.githubusercontent.com/89354259/200183932-f2ca3e41-3655-4576-92f6-3d0afaeced16.png)
 
 
+![image](https://user-images.githubusercontent.com/89354259/200184120-4e2f3d4f-4656-4219-8239-da6247258d7e.png)
+![image](https://user-images.githubusercontent.com/89354259/200184125-454c5a1f-a6cf-4772-9911-d30774143fbf.png)
+![image](https://user-images.githubusercontent.com/89354259/200184131-569433fc-d0ec-48bd-889e-b8f4727c2411.png)
+![image](https://user-images.githubusercontent.com/89354259/200184138-0572a68f-c30c-4599-94b6-34665ac224b1.png)
+![image](https://user-images.githubusercontent.com/89354259/200184143-ef84ebc8-4ea3-40a7-8ca5-f4fd697ae095.png)
+![image](https://user-images.githubusercontent.com/89354259/200184149-53d61933-f35e-447d-800c-29dea7f7f394.png)
+
+
 ## 🚀 About Me
 I'm a Programmer.
 
